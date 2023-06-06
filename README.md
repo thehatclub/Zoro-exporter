@@ -1,1 +1,1 @@
-Here's a tutorial on how to use it: https://mixdroop.bz/e/j9xnlngdhxprx0
+Here's a tutorial on how to use it: https://vimeo.com/833812971?share=copy
